@@ -10,4 +10,4 @@ av中文字幕乱码-080725-ht
 
 本站专为用户提供中文字幕相关精品视频内容，涵盖欧美精品、亚洲专区、福利资源等多类型。视频播放快速清晰，适配所有主流设备，无需注册、无广告干扰，畅享沉浸式观影体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/phu20250708/phu1 ）</span>
